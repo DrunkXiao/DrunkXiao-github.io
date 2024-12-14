@@ -1,4 +1,4 @@
-[Hux Blog](https://huangxuan.me)
+[DrunkXiao Blog](https://trunkx.us.kg)
 ================================
 
 > I never expected this to become popular.
